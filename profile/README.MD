@@ -6,6 +6,7 @@ Welcome to **OK Win Game**, your ultimate destination for thrilling online gamin
 
 ## 🔗 Quick Links
 
+### 👉 [OK Win App Download](https://gamelogin.in/ok-win/)
 ### 👉 [OK Win Login](https://gamelogin.in/ok-win/)
 ### 👉 [OK Win Register](https://gamelogin.in/ok-win/)
 
